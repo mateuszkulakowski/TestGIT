@@ -1,0 +1,1 @@
+AUTOR: Mateusz Ku³akowski
